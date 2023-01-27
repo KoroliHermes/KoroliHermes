@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @KoroliHermes
+- 👀 I’m interested in chicken nuggets
+- 🌱 I’m currently learning on how to microwave chicken nuggets
+- 💞️ I’m looking to collaborate with McDonalds
+- 🎮 I'm a professional gamer
